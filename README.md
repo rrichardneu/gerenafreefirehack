@@ -1,6 +1,6 @@
 A highly popular game in this genre called Garena Free Fire (formerly known as an alternative to Free Fire-Battleground). This game is a feature pack.
 
-<center></b><h2>👉👉 <a href="https://dis.rocks/emudh">Click Here To Hack Free Fire Diamonds and Coins Generator</a></h2></b></center>
+<center></b><h2>👉👉 <a href="https://dis.rocks/emudh">Click Here To get free Diamonds and Coins Generator</a></h2></b></center>
 
 
 For example major game modes such as single queue and squad mode make a comeback. Although the game may seem like a next-person shooter, its primary goal is to be different from a shooter. Its primary goal is to survive to the end and soon you get the first rank. Get unlimited diamonds and coins in this hack game.
